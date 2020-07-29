@@ -1,4 +1,4 @@
-# Easy Pizza Crust 
+# Pizza Crust 
 by [King Arthur Flour](https://www.kingarthurflour.com/recipes/the-easiest-pizza-youll-ever-make-recipe)
 
 ## Ingredients
