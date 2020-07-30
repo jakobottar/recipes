@@ -1,5 +1,5 @@
 # Chocolate Chip Cookies 
-by Jakob Johnson
+by Jakob Johnson adapted from [Original Toll House Cookies](https://www.allrecipes.com/recipe/174864/original-nestle-toll-house-chocolate-chip-cookies/)
 
 Makes 3 dozen cookies, recipe adjusted for high altitude
 
