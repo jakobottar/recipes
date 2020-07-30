@@ -12,14 +12,23 @@ by [King Arthur Baking Co](https://www.kingarthurbaking.com/recipes/baking-powde
 
 ## Directions
 1. Preheat your oven to 425°F with a rack in the upper portion. Get out a baking sheet; there's no need to grease it. Line it with parchment if you like, for easiest cleanup.
+
 2. Weigh your flour; or measure it by gently spooning it into a cup, then sweeping off any excess. 
+
 3. Mix together the flour, salt, baking powder, and sugar.
+
 4. Work the butter into the flour mixture using your fingers, a fork or pastry blender, a stand mixer, or a food processor; your goal is an evenly crumbly mixture (think breadcrumbs).
+
 5. Drizzle the smaller amount of milk evenly over the flour mixture. Mix quickly and gently for about 15 seconds, until you've made a cohesive dough. If the mixture seems dry and won't come together, don't keep working it; drizzle in enough milk — up to an additional 2 tablespoons (28g) to make it cohesive.
+
 6. Place the dough on a lightly floured work surface. Pat it into a rough rectangle about 3/4" thick. Fold it into thirds like a letter and roll gently with a floured rolling pin until the dough is 3/4" thick again.
+
 7. Cut the dough into circles with a biscuit cutter for traditional round biscuits; a 2 3/8" cutter makes nice-sized biscuits. Or to avoid leftover dough scraps, cut the dough into squares or diamonds with a bench knife or sharp knife.
+
 8. Place the biscuits bottom side up on your prepared baking sheet; turning them over like this yields biscuits with nice, smooth tops. Brush the biscuits with milk, to enhance browning.
+
 9. Bake the biscuits for 15 to 20 minutes, until they're lightly browned. Remove them from the oven, and serve warm.
+
 10. Store any leftover biscuits, well wrapped, at room temperature for several days. Freeze for longer storage. Biscuits are always best when they're rewarmed before serving.
 
 ## Notes

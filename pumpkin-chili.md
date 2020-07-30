@@ -24,9 +24,13 @@ Awarded third place at Utah State College of Ag Annual Chili Cook-off 2018. It s
 
 ## Directions
 1. In a large pot, heat oil over medium heat. Add onion and cook, stirring often, until softened. Move the onions to the edge of the pot, add a bit more oil, then add garlic and cook till fragrant.
+
 2. Add ground beef, salt, and all the spices. Cook for 10 minutes, breaking up beef into small pieces until fully cooked. 
+
 3. Add pumpkin, chocolate, crushed tomatoes, and tomato juice. Stir and reduce heat to low. Simmer for 90 minutes, stirring occasionally. 
+
 4. Add pinto beans, simmer for 15 more minutes. 
+
 5. Add water (or stock) to thin if desired. 
 
 Serve with avocado, sour cream, and fresh cilantro.
