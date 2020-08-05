@@ -19,7 +19,7 @@ by [King Arthur Flour](https://www.kingarthurflour.com/recipes/the-easiest-pizza
 
 4. Place the dough in a lightly greased bowl or other container, cover it, and let it rise for 1 to 2 hours, whatever fits your Schedule. Bake with your favorite method. 
 
-### Cast Iron Baking Method 
+## Cast Iron Baking Method 
 by [Brad Leone](https://www.bonappetit.com/recipe/cast-iron-pizza-with-fennel-and-sausage)
 
 1. Gently deflate the dough, and divide it into three pieces so we get that nice thick spongy crust. Oil and stretch each piece with your hands into a circle to fit a 10” cast iron pan, leaving a lump at the edge as the crust. Let the dough rest to relax it and make it more cooperative if you need. 

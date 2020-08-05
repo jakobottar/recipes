@@ -1,4 +1,5 @@
 # Hamburger or Hot Dog Buns
+by [King Arthur Baking Co](https://www.kingarthurbaking.com/recipes/hamburger-or-hot-dog-buns-recipe)
 
 ## Ingredients
 * 2 tablespoons (25g) sugar
@@ -7,7 +8,7 @@
 * 2 cups (488g) warm milk (105°F to 115°F)
 * 2 tablespoons (27g) vegetable oil
 * 2 teaspoons salt
-* 6 to 7 1/2 cups (720g to 900g) King Arthur Unbleached All-Purpose Flour 
+* 6 to 7 1/2 cups (720g to 900g) All-Purpose Flour 
 * egg wash: 1 egg beaten with 1 tablespoon (15g) cold water
 * sesame, poppy or caraway seeds or coarse salt, optional
 
