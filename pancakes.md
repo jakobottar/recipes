@@ -2,13 +2,13 @@
 by [Betty Crocker](https://www.bettycrocker.com/recipes/classic-pancakes/77a89da1-fd56-494b-874a-55f9195c1413)
 
 ## Ingredients
-* 1 egg
-* 1 cup all-purpose flour
-* 1 tablespoon sugar
-* 3 teaspoons baking powder
-* 1/4 teaspoon salt
-* 3/4 cup milk
-* 2 tablespoons vegetable oil or melted butter 
+* 2 eggs
+* 2 cups all-purpose flour
+* 2 tbsp sugar
+* 2 tbsp baking powder
+* 1/2 teaspoon salt
+* 1 1/2 cup + 2 tbsp milk
+* 4 tbsp vegetable oil or melted butter 
 
 ## Directions
 1. In medium bowl, beat egg with wire whisk until fluffy. Stir in remaining ingredients just until flour is moistened (batter will be slightly lumpy); do not overmix or pancakes will be tough. For thinner pancakes, stir in additional 1 to 2 tablespoons milk. 
