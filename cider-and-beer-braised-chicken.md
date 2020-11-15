@@ -1,6 +1,8 @@
 # Cider and Beer-Braised Chicken 
 by [Half-Baked Harvest](https://www.crateandbarrel.com/the-frame/cider-beer-braised-chicken)
 
+**NOTE: This recipe needs work, it did not turn out great...**
+
 ## Ingredients
 * 1½ pounds boneless, skinless chicken breasts or thighs
 * Kosher salt, to taste
