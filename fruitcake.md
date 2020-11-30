@@ -4,12 +4,7 @@ Adapted From Alton Brown's [Free Range Fruitcake](https://www.foodnetwork.com/re
 
 ## Ingredients
 
-* 1 cup golden raisins
-* 1 cup currants
-* 1/2 cup sun dried cranberries
-* 1/2 cup sun dried blueberries
-* 1/2 cup sun dried cherries
-* 1/2 cup dried apricots, chopped
+* 4 cups dried fruit. I like to use a mix of golden raisins, cranberries, cherries, and apricots
 * Zest of one lemon
 * Zest of one orange
 * 1/4 cup candied ginger, chopped
