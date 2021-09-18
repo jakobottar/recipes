@@ -25,6 +25,6 @@ Makes 3 dozen cookies, recipe adjusted for high altitude.
 
 4. Cover and refrigerate for a few minutes while you clean up. The goal here is just to prevent the dough from getting too soft. Don't leave it too long as you still need to be able to scoop it.
 
-5. Scoop onto a cookie sheet. I like to freeze most of the cookie dough after this step, but you should at least let it sit in the fridge for >30 min to fully stiffen. This will help the cookies get that perfect shape while still being properly done. 
+5. Scoop onto a cookie sheet and freeze for >30 min. This will help the cookies get that perfect shape while still being properly done. As a bonus, you can leave half in a bag in the freezer for some other time. 
 
 6. Bake for ~14 min until lightly browned on top. The cookies will collapse slightly when cooling so err on the side of underbaked. 
